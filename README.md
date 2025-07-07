@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/jayanta-kumar-roy](https://github.com/jayanta-kumar-roy)
 
-- 📫 How to reach me **kumarroyjayantanitw@gmail.com**
+- 📫 How to reach me **kumarroyjayantanimcet@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
